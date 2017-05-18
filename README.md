@@ -1,2 +1,3 @@
-# my-game-program
-my first repository on github
+# LUYIMBAAZI MARTIN 
+ELECTRICAL ENGINEERING
+16/U/549
